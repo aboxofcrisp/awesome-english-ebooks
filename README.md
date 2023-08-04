@@ -1,6 +1,7 @@
 待阅读书籍：
 
 1.关于思维
+
 《思考，快与慢》（Thinking, Fast and Slow）作者：丹尼尔·卡尼曼（Daniel Kahneman）
 
 《思维的艺术》（The Art of Thinking Clearly）作者：罗伯特·J·席勒（Robert J. Shiller）
