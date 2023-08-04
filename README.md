@@ -2,9 +2,13 @@
 
 1.关于思维
 《思考，快与慢》（Thinking, Fast and Slow）作者：丹尼尔·卡尼曼（Daniel Kahneman）
+
 《思维的艺术》（The Art of Thinking Clearly）作者：罗伯特·J·席勒（Robert J. Shiller）
+
 《改变你的思维，改变你的人生》（Change Your Thinking, Change Your Life）作者：史蒂夫·艾尔文（Steve Ellis）
+
 《思维的陷阱》（The Traps of Thinking）作者：查尔斯·艾略特（Charles Eliot）
+
 《思考的力量》（The Power of Thinking）作者：史蒂芬·科维（Stephen Covey）
 
 
