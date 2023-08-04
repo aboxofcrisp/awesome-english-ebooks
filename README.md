@@ -12,7 +12,7 @@
 
 《思考的力量》（The Power of Thinking）作者：史蒂芬·科维（Stephen Covey）
 
-
+《伟大的思维模型》 The Great Mental Models 作者：“Shane Parrish and Rhiannon Beaubien”
 
 
 # 经济学人、纽约客等英语外刊杂志下载
